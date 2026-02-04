@@ -1,2 +1,3 @@
-# ACT2-D2-A2
-A
+# ACT2-ALEJANDRO 
+¿Qué se aprendió en el dia 1?
+
